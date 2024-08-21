@@ -10,7 +10,7 @@ Meu nome é Maria Beatriz Pacheco
 
 mabpchco@gmail.com
 
-@mabpachco
+@mapachco
 
 ![](https://media1.tenor.com/m/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
 
